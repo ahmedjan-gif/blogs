@@ -59,3 +59,6 @@ Older children and teens may benefit from youth counselling and therapy Singapor
 
 You’re a thoughtful parent doing your best in a busy world. When emotions run high or behavior feels stuck, you don’t need to figure it out alone. With child counseling Singapore, your child has a safe place to practice new skills, and you have a clear roadmap you can trust. Progress shows up in small wins first, then larger shifts—more words, calmer routines, stronger family bonds.
 If your instincts tell you it’s time, take the step. With the right counselor and the right support, your child can become more confident, more resilient, and more connected. And your family can breathe easier, one day at a time.
+
+[Get in touch with Kidz OTC
+](https://kidzotc.com.sg/contact-us/)
